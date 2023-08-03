@@ -1,0 +1,2 @@
+2.dosyanın ilk satırı
+2.dosyanın ikinci satırı
