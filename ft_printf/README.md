@@ -1,8 +1,0 @@
-![en subject-1](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/fb454a73-9d8b-4168-83f4-ca44c0447880)
-![en subject-2](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/e0ab936d-f7f8-40be-ab27-54c3ebb1baaa)
-![en subject-3](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/f25a954c-c910-4776-ba18-07c7d7b17758)
-![en subject-4](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/aa0bb5d2-3a29-44de-8433-77fe059437c3)
-![en subject-5](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/c9ef7c3d-9a8f-4e8b-9016-3b39f8732d42)
-![en subject-6](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/814d6cad-30c8-4747-b5f0-c5d9e07397f7)
-![en subject-7](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/0968a09d-27b2-42c4-9ce8-99bbf9f62a02)
-![en subject-8](https://github.com/emrebykby/42_Istanbul_Main_Course/assets/90874753/9335beaa-d1c2-4a87-8339-6b80aad547e1)
